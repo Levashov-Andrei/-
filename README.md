@@ -2,7 +2,7 @@
 
 Добрый день! Меня зовут **Левашов Андрей** !
 
-![Это я](https://drive.google.com/file/d/1s_LR2T146aLVVekwOqT2g6DqpBFBzfAK/view?usp=sharing)
+![Это я](/%D0%9D%D0%B0%D1%88_%D1%81%D0%B2%D0%B0%D0%B4%D0%B5%D0%B1%D0%BD%D1%8B%D0%B9_%D0%B4%D0%B5%D0%BD%D1%8C-61.JPG)
 
 Мне 29 лет
 
